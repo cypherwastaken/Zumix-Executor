@@ -1,3 +1,6 @@
-Everything was created by @pressure.sh4 & @94to on Discord
+# Zumix
+- Discord: https://discord.gg/YqhJegxgK6
+- Discord ID: 1294648348074053717
+- Discord Username: @94to
 
-Any bugs you find please report them to my Discord, there will be a server soon
+Any questions or comments feel free to add me or join the Discord server.
