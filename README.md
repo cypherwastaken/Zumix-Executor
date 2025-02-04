@@ -1,5 +1,5 @@
 # Zumix
-- Discord: https://discord.gg/getzumix
+- Discord: https://discord.gg/sbVNZVgksw
 - Discord ID: 1294648348074053717
 - Discord Username: @94to
 
